@@ -10,5 +10,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Você pode entrar em contato comigo 📫 carvalhorayumi@gmail.com
 
-![]()
+![](https://i.gifer.com/4JzY.gif)
+
 
